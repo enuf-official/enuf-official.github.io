@@ -8,4 +8,4 @@
 
 서비스 개선을 위한 의견 또한 환영합니다.
 
-enuf.official@gmail.com
+<enuf.official@gmail.com>
