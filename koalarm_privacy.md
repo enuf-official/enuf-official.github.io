@@ -83,7 +83,7 @@
 
 직급: 대표
 
-연락처: enuf.official@gmail.com, 
+연락처: enuf.official@gmail.com
 
 ※ 개인정보 보호 담당부서로 연결됩니다.
 
